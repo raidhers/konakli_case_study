@@ -1,0 +1,1 @@
+# konakli_case_study
